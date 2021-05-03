@@ -1,6 +1,6 @@
 # 2021.05.01
 # Attempts: 1
-
+# Solved
 
 n = int(input())
 

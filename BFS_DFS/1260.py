@@ -1,5 +1,6 @@
 # 2021.05.03
 # Attempts: 1
+# Solved
 
 from collections import deque
 
