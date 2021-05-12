@@ -11,3 +11,5 @@ fuck you lol
 *Today's song: "I Wanna Be With You - Loving Caliber"*
 (23:24)
 
+## - 2021. 05. 12
+I fucking hate my superior KDH. The bitch thinks he's so much better than me.
