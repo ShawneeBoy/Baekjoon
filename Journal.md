@@ -16,3 +16,6 @@ I fucking hate my superior KDH. The bitch thinks he's so much better than me.
 
 ## - 2021. 05. 13
 I'm being gaslighted by him. ffs, I'm not letting him do that to me
+
+## - 2021. 05. 16
+let me go home pls
