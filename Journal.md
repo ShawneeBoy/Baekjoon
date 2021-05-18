@@ -19,3 +19,6 @@ I'm being gaslighted by him. ffs, I'm not letting him do that to me
 
 ## - 2021. 05. 16
 let me go home pls
+
+## - 2021. 05. 18
+Today was actually pretty good. I mean, I got let out from work at 7:30 PM because my fucking XO had us print this super long secret document that took 5 hours to print, but other than that I talked with my seniors a lot, joked around, and besides, we get a day off tomorrow. All in all, pretty satisfactory day in a few days lol
