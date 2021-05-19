@@ -22,3 +22,7 @@ let me go home pls
 
 ## - 2021. 05. 18
 Today was actually pretty good. I mean, I got let out from work at 7:30 PM because my fucking XO had us print this super long secret document that took 5 hours to print, but other than that I talked with my seniors a lot, joked around, and besides, we get a day off tomorrow. All in all, pretty satisfactory day in a few days lol
+
+## - 2021. 05. 19
+I made a bet with my hooim to quit smoking lol.
+if i win, i get 5만원. lezgitit
